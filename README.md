@@ -1,0 +1,2 @@
+# businessstrategylife.github.io
+businessstrategylife
